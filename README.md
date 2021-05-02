@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @kapa11
+- 🌱 I’m currently learning to make apps
