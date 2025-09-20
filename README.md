@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @kapa11
-- 🌱 I’m currently learning to make apps
+- 🌱 I’m currently learning... well, a lot of things!
